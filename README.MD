@@ -9,6 +9,7 @@
 Before you continue, if you wanna see some extra information about me you should vist my strawpage! -> [Here!](https://plasmat1ca.straw.page/)
 
 ![image_alt](https://github.com/xpale/xpale/blob/main/fr%20this%20time.png?raw=true)
+![image_alt](https://github.com/xpale/xpale/blob/main/ae5edf32b3bbafa0f0b039fffd1dc820.jpg?raw=true)
 
 ### Firstly, here's some quick information about me for Pony Town!
 
@@ -62,3 +63,4 @@ I know most ppl take this for a grain of salt but please respect these.
 ## Thanks for spending your time here! Have a wonderful day and stay safe! xx
 
 ![image_alt](https://github.com/xpale/xpale/blob/main/fr%20this%20time.png?raw=true)
+![image_alt](https://github.com/xpale/xpale/blob/main/b0c729dad357f9f127f6dc487c504472.jpg?raw=true)
