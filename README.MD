@@ -38,3 +38,27 @@ Before you continue, if you wanna see some extra information about me you should
 - Everskies
 
 ![image_alt](https://github.com/xpale/xpale/blob/main/fr%20this%20time.png?raw=true)
+
+### DNI (Do not interact)
+
+I know most ppl take this for a grain of salt but please respect these.
+
+- Basics 'Phobes', 'Ists' etc.
+- If you are under 13 or over 20, I don't feel comfortable interacting with people outside this age range.
+
+![image_alt](https://github.com/xpale/xpale/blob/main/fr%20this%20time.png?raw=true)
+
+### Lastly, here are my social/game links if you wanna check them out!
+
+- [Roblox](https://www.roblox.com/users/3802056820/profile)
+- [Everskies](https://everskies.com/user/pipsque-16237535)
+- [Steam](https://steamcommunity.com/profiles/76561198781329583/)
+- [Pinterest](https://au.pinterest.com/plasmat1ca/)
+- [Twitter/X](https://x.com/plasmaticant)
+- Discord : i_lov3
+
+![image_alt](https://github.com/xpale/xpale/blob/main/fr%20this%20time.png?raw=true)
+
+## Thanks for spending your time here! Have a wonderful day and stay safe! xx
+
+![image_alt](https://github.com/xpale/xpale/blob/main/fr%20this%20time.png?raw=true)
