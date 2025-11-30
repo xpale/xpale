@@ -1,3 +1,5 @@
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=xpale)
+
 ![image_alt](https://github.com/xpale/xpale/blob/main/dividerblack.png?raw=true)
 
 # Plasmatica's Page :
@@ -36,5 +38,3 @@ Before you continue, if you wanna see some extra information about me you should
 - Everskies
 
 ![image_alt](https://github.com/xpale/xpale/blob/main/fr%20this%20time.png?raw=true)
-
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=xpale)
