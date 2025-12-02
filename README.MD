@@ -46,6 +46,7 @@ I know most ppl take this for a grain of salt but please respect these.
 
 - Basics 'Phobes', 'Ists' etc.
 - If you are under 13 or over 20, I don't feel comfortable interacting with people outside this age range.
+- If you self diagnose, I don't like interacting with people who diagnose themselves without medical advice.
 
 ![image_alt](https://github.com/xpale/xpale/blob/main/fr%20this%20time.png?raw=true)
 
