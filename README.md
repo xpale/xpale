@@ -14,4 +14,6 @@ I just enjoy it fictionally, any acts of this in real life is not tolerated.
 After *cough cough* suicide attempts and a trip to the pysch ward *cough cough* my awesome internet access is limited yay... so I may type slowly or not at all with my parents in the room, leave unexpectedly, go to my island, or in worse cases - unfriend you. Please don't take this personally at all, this is purely to gain trust back. 
 
 ## DNI
-My dni list is very limited, you could drop crazy slurs and i won't really gaf. Anyone looking for a romantic relationship with me can also go away :) I'm not looking for that online. And
+My dni list is very limited, you could drop crazy slurs and i won't really gaf. Anyone looking for a romantic relationship with me can also go away :) I'm not looking for that online. And PLEASE if i'm on my island DNI DNI DNI!!! This most likely means i have to connect to my tv with my device, meaning my whole family can see anything you send me, though if you come with me to it thats fine!
+
+## Anyways, toodleoo!! Stay safe friends, and don't be afraid to int!
