@@ -2,7 +2,7 @@
 ## *any pronouns*
 
 Hey, hey! I'm doober :3
-I'm too lazy to make a strawpage so here's some quick info on me!
+Visit my Strawpage for my interests and to send gimmicks! https://doobered.straw.page
 
 ## I'm a DARKSHIPPER
 *(Woah scary ik)*
