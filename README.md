@@ -1,4 +1,4 @@
-![Profile views](https://komarev.com/ghpvc/?username=xpale&label=doobers&color=black&style=flat)
+![Profile views](https://komarev.com/ghpvc/?username=xpale&label=doobers&color=000000&style=flat)
 # xpale  /  doober
 ## *she/her or any pronouns*
 
