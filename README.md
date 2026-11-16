@@ -1,6 +1,8 @@
+[![Hits](https://seeyoufarm.com)](https://seeyoufarm.com)
+
 
 # xpale  /  doober
-## *any pronouns*
+## *she/her or any pronouns*
 
 Hey, hey! I'm doober :3
 Visit my Strawpage for my interests and to send gimmicks! https://doobered.straw.page
