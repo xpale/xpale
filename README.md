@@ -1,5 +1,3 @@
-[![Hits](https://seeyoufarm.com)](https://seeyoufarm.com)
-
 
 # xpale  /  doober
 ## *she/her or any pronouns*
