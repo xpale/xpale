@@ -51,3 +51,10 @@ strawpage
 
   </details>
 </div>
+<br><br>
+<div align="center">
+  <details>
+    <summary>byi</summary>
+gay
+    </details>
+</div>
