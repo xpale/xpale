@@ -30,10 +30,12 @@ strawpage
    <a href="https://xpale.atabook.org">
    <img width="197" height="197" alt="Untitled791_20261121195734" src="https://github.com/user-attachments/assets/8e13f9d6-24a3-4c2a-ae96-50dc8c78f400" />
 </p>
- <br><br>
-  <h3 align="center">dni</h3>
- <br>
-  <p align="center">
+ 
+  <div align="center">
+  <details>
+    <summary>dni</summary>
+
+     <p align="center">
   my dni list is very small, this is more like a beware than fully dni, please be cautious if you are any of the following
   <br><br>
   fans of tadc, hazbin hotel, heluva boss and somewhat dandy's world 
@@ -48,11 +50,6 @@ strawpage
     <br>
     - every so often is fine, but do i even have to explain this
     </p>
-  <div align="center">
-  <details>
-    <summary>Click me!</summary>
-
-    Hello! Welcome to my page!
 
   </details>
 </div>
