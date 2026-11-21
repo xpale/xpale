@@ -44,17 +44,24 @@ strawpage
     people who only want to roleplay
     <br>
     -i like a good roleplay every once and a while, but being forced or pressured to roleplay every time you're online drains me 
-    <br> <br>
+    <br><br>
     ragebaiters, people who just want to cause drama
     <br>
     -every so often is fine, but do i even have to explain this
-
+<br><br>
+yumeshippers of mymy
   </details>
 </div>
 <br>
 <div align="center">
   <details>
     <summary>byi</summary>
-gay
+-i am a proshipper, darkshipper and comshipper, purely for my own joy
+   <br>
+   -i am a minor (questioning age regr stuff), it depends on my mood, but i often like to be treated like one
+   <br>
+   -i use typing quirks, because it makes me feel happy
+   <br>
+   -i'm a yumeshipper and fictionkin, doubles that yume with mymy iwec
     </details>
 </div>
