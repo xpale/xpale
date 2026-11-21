@@ -9,3 +9,5 @@ doober ♡ she/her or any
  minor iwc
  </p>
  <br>
+<p align="center">
+diagnosed autism . chronic anxiety ♡ susp (with medical approval) ocd . derealisation . chronic depression
