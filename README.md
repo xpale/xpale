@@ -34,8 +34,7 @@ strawpage
   <div align="center">
   <details>
     <summary>dni</summary>
-
-     <p align="center">
+   
   my dni list is very small, this is more like a beware than fully dni, please be cautious if you are any of the following
   <br><br>
   fans of tadc, hazbin hotel, heluva boss and somewhat dandy's world 
@@ -49,7 +48,6 @@ strawpage
     ragebaiters, people who just want to cause drama
     <br>
     - every so often is fine, but do i even have to explain this
-    </p>
 
   </details>
 </div>
