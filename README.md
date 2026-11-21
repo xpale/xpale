@@ -48,4 +48,11 @@ strawpage
     <br>
     - every so often is fine, but do i even have to explain this
     </p>
-  
+  <div align="center">
+  <details>
+    <summary>Click me!</summary>
+
+    Hello! Welcome to my page!
+
+  </details>
+</div>
