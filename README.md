@@ -63,6 +63,8 @@ i am a proshipper, darkshipper and comshipper, purely for my own joy
    i use typing quirks, because it makes me feel happy
    <br><br>
    i'm a yumeshipper and fictionkin, doubles that yume with mymy iwec
+   <br><br>
+   i often get overwhelmed when i don't understand things, get left out, or are around too many people, this will usually result in me going to my island, ending up making my derealisation worse, and often results in an iwec put in my name, despite it, i find it really nice if u even come check up on me, i sorta use it as a cry for help
     </details>
 </div>
 <p align="center">
