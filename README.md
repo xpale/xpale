@@ -14,8 +14,9 @@ diagnosed autism . chronic anxiety ♡ susp (with medical approval) ocd . dereal
  <br><br>
 <p align="center">
 strawpage
+ ⇩
  </p>
-  <br>
+  
   <p align="center">
 <a href="https://doobered.straw.page">
   <img width="197" height="197" alt="Untitled791_20261121195639" src="https://github.com/user-attachments/assets/13021d87-40b4-44ae-ab2c-f5712cc3e99c" />
