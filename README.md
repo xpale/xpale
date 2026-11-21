@@ -31,4 +31,4 @@ strawpage
    <img width="197" height="197" alt="Untitled791_20261121195734" src="https://github.com/user-attachments/assets/8e13f9d6-24a3-4c2a-ae96-50dc8c78f400" />
 </p>
  <br><br>
-  <h5 align="center">dni</h5>
+  <h4 align="center">dni</h4>
