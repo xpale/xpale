@@ -16,4 +16,4 @@ diagnosed autism . chronic anxiety ♡ susp (with medical approval) ocd . dereal
 strawpage
  </p>
   <br>
-  <img width="733" height="560" alt="download (11)" src="https://github.com/user-attachments/assets/44e600d6-a5f6-422c-9ef4-9dbd7b23578b" />
+ <img width="197" height="197" alt="Untitled791_20261121195639" src="https://github.com/user-attachments/assets/13021d87-40b4-44ae-ab2c-f5712cc3e99c" />
