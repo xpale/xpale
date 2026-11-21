@@ -51,7 +51,7 @@ strawpage
 
   </details>
 </div>
-<br><br>
+<br>
 <div align="center">
   <details>
     <summary>byi</summary>
