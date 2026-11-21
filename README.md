@@ -66,5 +66,5 @@ i am a proshipper, darkshipper and comshipper, purely for my own joy
     </details>
 </div>
 <p align="center">
-<img width="720" height="1056" alt="puso2gif" src="https://github.com/user-attachments/assets/628b9295-fbb5-4916-9e97-f59e867ea566" />
+<img width="520" height="856" alt="puso2gif" src="https://github.com/user-attachments/assets/628b9295-fbb5-4916-9e97-f59e867ea566" />
 </p>
