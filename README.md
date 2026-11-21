@@ -35,13 +35,17 @@ strawpage
  <br>
   <p align="center">
   my dni list is very small, this is more like a beware than fully dni, please be cautious if you are any of the following
-  <br>
+  <br><br>
   fans of tadc, hazbin hotel, heluva boss and somewhat dandy's world 
+    <br>
   - i tend to feel uncomfortable around people who are 'mega fans' of these fandoms, yet close friends don't count as much
-    <br>
+    <br> <br>
     people who only want to roleplay
-    - i like a good roleplay every once and a while, but being forced or pressured to roleplay every time you're online drains me 
     <br>
+    - i like a good roleplay every once and a while, but being forced or pressured to roleplay every time you're online drains me 
+    <br> <br>
     ragebaiters, people who just want to cause drama
+    <br>
     - every so often is fine, but do i even have to explain this
+    </p>
   
