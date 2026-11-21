@@ -39,15 +39,15 @@ strawpage
   <br><br>
   fans of tadc, hazbin hotel, heluva boss and somewhat dandy's world 
     <br>
-  - i tend to feel uncomfortable around people who are 'mega fans' of these fandoms, yet close friends don't count as much
+   -i tend to feel uncomfortable around people who are 'mega fans' of these fandoms, yet close friends don't count as much
     <br> <br>
     people who only want to roleplay
     <br>
-    - i like a good roleplay every once and a while, but being forced or pressured to roleplay every time you're online drains me 
+    -i like a good roleplay every once and a while, but being forced or pressured to roleplay every time you're online drains me 
     <br> <br>
     ragebaiters, people who just want to cause drama
     <br>
-    - every so often is fine, but do i even have to explain this
+    -every so often is fine, but do i even have to explain this
 
   </details>
 </div>
