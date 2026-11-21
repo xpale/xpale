@@ -32,5 +32,5 @@ strawpage
 </p>
  <br><br>
    <p align="center">
-   dni
+    <h6>dni</h6>
      </p>
