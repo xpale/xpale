@@ -56,12 +56,12 @@ yumeshippers of mymy
 <div align="center">
   <details>
     <summary>byi</summary>
--i am a proshipper, darkshipper and comshipper, purely for my own joy
+i am a proshipper, darkshipper and comshipper, purely for my own joy
    <br>
-   -i am a minor (questioning age regr stuff), it depends on my mood, but i often like to be treated like one
+   i am a minor (questioning age regr stuff), it depends on my mood, but i often like to be treated like one
    <br>
-   -i use typing quirks, because it makes me feel happy
+   i use typing quirks, because it makes me feel happy
    <br>
-   -i'm a yumeshipper and fictionkin, doubles that yume with mymy iwec
+   i'm a yumeshipper and fictionkin, doubles that yume with mymy iwec
     </details>
 </div>
