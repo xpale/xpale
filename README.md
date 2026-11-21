@@ -65,3 +65,6 @@ i am a proshipper, darkshipper and comshipper, purely for my own joy
    i'm a yumeshipper and fictionkin, doubles that yume with mymy iwec
     </details>
 </div>
+<p align="center">
+<img width="720" height="1056" alt="puso2gif" src="https://github.com/user-attachments/assets/628b9295-fbb5-4916-9e97-f59e867ea566" />
+</p>
